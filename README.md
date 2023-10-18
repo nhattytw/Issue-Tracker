@@ -1,1 +1,1 @@
-# Receipe
+# Recipe
